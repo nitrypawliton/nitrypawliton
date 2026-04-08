@@ -11,4 +11,4 @@
 </div>
 
 ㅤㅤㅤㅤㅤ
-![1000190388](https://github.com/user-attachments/assets/c0958346-460f-48d9-828e-a23e6d945596)
+<img width="942" height="143" alt="Image" src="https://github.com/user-attachments/assets/7ea9b39f-0127-4075-8b87-047c9f0ba6eb" />
