@@ -1,7 +1,7 @@
-@indocore 
+@mecore 
 
 ㅤㅤㅤㅤㅤ
-![1000190387](https://github.com/user-attachments/assets/5670c953-aeeb-4157-8638-9a6c0183b59d) 
+<img width="942" height="143" alt="Image" src="https://github.com/user-attachments/assets/923569d4-3289-4dad-a5cb-cf3e9a822880" /> 
 
 <p align="center">
 <img src="http://some_place.com/image.png" />
