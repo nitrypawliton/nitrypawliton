@@ -5,7 +5,7 @@
 
 <p align="center">
 <img src="http://some_place.com/image.png" />
-</p><img width="2621" height="2026" alt="Image" src="https://github.com/user-attachments/assets/7f951e51-ef62-40bb-8739-34bc0eb6503c" />
+</p><img width="2621" height="2026" alt="Image" src="https://github.com/user-attachments/assets/1ff62b7e-1f10-4192-bd6c-af7d38aeb4fa" />
 <div align="center">
 "Do i wanna know, if this feeling flows both ways."
 </div>
