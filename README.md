@@ -1,4 +1,4 @@
-<img align="center" width="200" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled10_20260706221648.png">
+<img align="center" width="567" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled10_20260706221648.png">
 
 <img align="left" width="200" src="https://file.garden/aiO9m-bAgXvOABPl/Sticker_vamoopy_Boggios_Binted.png">
 
