@@ -4,7 +4,8 @@ boomspace graphic that i made :3
 art cr: @Charlieslime3 on X.
 work in progress!!!
 
-upd: very busy on school, ill try to finish this with the freetime i have!! C:
+upd: very busy on school, ill try to finish this with the freetime i have!! C: 
+and gosh tysm for 100+ follows!! <3 love yall
  
 
 
