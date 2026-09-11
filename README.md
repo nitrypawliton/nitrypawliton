@@ -1,4 +1,13 @@
 <img align="left" width="300" src="https://cdn.imgchest.com/files/dec1942c7553.png">
+<br>  
+  <table>
+    <tr>
+      <td>
+     <img src="https://cdn.imgchest.com/files/e02b804373e7.webp" width="20"> ${\textsf{\color{#F5D9D7} C+h}}$ ${\textsf{\color{#F5E0C4} freely,}}$ ${\textsf{\color{#F8EAD5} int/}}$ ${\textsf{\color{#E5F4D9} bmf!}}$ ${\textsf{\color{#E4E1EB} w2i,}}$ ${\textsf{\color{#F4F3EA} (˶>ᴗ<˶) .ᐟ.ᐟ}}$ <br>
+${\textsf{\color{#E4E1EB} thank you!}}$ <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a> <a href="https://github.com/ship-town">@ship-town</a> <br>
+      </td>
+    </tr>
+  </table>
 
 
 ${\textsf{\color{#C0FF88}░▒▒▓▓▓█████▓▓▓▒▒░}}$
