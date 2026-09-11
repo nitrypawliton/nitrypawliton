@@ -15,7 +15,8 @@ ${\textsf{\color{#D0FDDB} thank you!}}$ <a href="https://github.com/Ponytowns-re
 
  <details>
 <summary> ${\textsf{\color{#A5F687} ٠࣪⭑}}$ ${\textsf{\color{#D0FDDB} before}}$ ${\textsf{\color{#D0FDDB} you}}$ ${\textsf{\color{#D0FDDB} interact}}$ ${\textsf{\color{#9BF384} !}}$ ${\textsf{\color{#A5F687} ˙⋆ . ࿔ ˚  }}$ <img src="https://cdn.imgchest.com/files/bd0457be9e2a.webp" width="20"> </summary><br>
-         $${\color{#D0FDDB}basic \space dni \space especially \space weirdos }$$ <br>
+         $${\color{#D0FDDB}im \space a \space minor! \space /15! }$$ <br>
+   $${\color{#D0FDDB}basic \space dni \space especially \space weirdos }$$ <br>
          $${\color{#D0FDDB}any \space age \space int \space freely \space just \space dont \space be \space that \space kind \space of \space weird }$$ <br>
             $${\color{#D0FDDB}extrovertian \space /ambivert \space depends \space on \space the \space other \space person }$$ <br>
          $${\color{#D0FDDB}busy \space sometimes \space but \space a \space guaranteed \space response }$$ <br>
