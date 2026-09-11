@@ -10,7 +10,7 @@ ${\textsf{\color{#D0FDDB} thank you!}}$ <a href="https://github.com/Ponytowns-re
     </tr>
   </table>
        
-${\textsf{\color{#D0FDDB} Ponytown's Boombox!}}$ ${\textsf{\color{#A5F687} ,No.1 Boomspace shipper}}$ ${\textsf{\color{#FE165F} space shipper}}$ 
+${\textsf{\color{#D0FDDB} Ponytown's Boombox!}}$ ${\textsf{\color{#A5F687} ,No.1 Boom}}$${\textsf{\color{#FE165F} space shipper}}$ 
 
 
 
