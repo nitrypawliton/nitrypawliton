@@ -1,4 +1,4 @@
-<img align="left" width="400" src="https://cdn.imgchest.com/files/dec1942c7553.png">
+<img align="left" width="300" src="https://cdn.imgchest.com/files/dec1942c7553.png">
 
 
 
