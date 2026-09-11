@@ -17,6 +17,5 @@
 <img align="left" width="200" src="https://cdn.imgchest.com/files/3a8d90f6d054.png">
 <img align="left" width="100" src="https://cdn.imgchest.com/files/51d24e841194.png">
 <img align="left" width="100" src="https://cdn.imgchest.com/files/b551428fb7ce.webp">
-<img align="left" width="100" src="https://cdn.imgchest.com/files/456dc0c09b06.png">
 <img align="left" width="100" src="https://cdn.imgchest.com/files/50139811f459.webp">
 
