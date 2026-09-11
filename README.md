@@ -1,7 +1,7 @@
 <img align="left" width="300" src="https://cdn.imgchest.com/files/dec1942c7553.png">
 
 
-${\textsf{\color{#C0FF88} ▂ ▃ ▄▅ ▆ ▇ ███████ ▇ ▆ ▅ ▄ ▃ ▂}}$
+${\textsf{\color{#C0FF88}░▒▒▓▓▓█████▓▓▓▒▒░}}$
 
  <details>
 <summary> ${\textsf{\color{#A5F687} ٠࣪⭑}}$ ${\textsf{\color{#D0FDDB} before}}$ ${\textsf{\color{#D0FDDB} you}}$ ${\textsf{\color{#D0FDDB} interact}}$ ${\textsf{\color{#9BF384} !}}$ ${\textsf{\color{#A5F687} ˙⋆ . ࿔ ˚  }}$ <img src="https://cdn.imgchest.com/files/bd0457be9e2a.webp" width="20"> </summary><br>
